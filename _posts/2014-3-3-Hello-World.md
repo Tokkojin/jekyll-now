@@ -15,7 +15,7 @@ Do I identify as more male because I'm a Type A who shies from identifying as fe
 
 ...
 
-I'm not even sure how to begin approaching these questions.
+I don't know how to begin approaching these questions.
 
 To make a long story short regarding my personal gender identity, though: I identify as non-binary, mainly because I don't see how something is necessarily "male" or "female" aside from sex parts.
 
@@ -26,4 +26,3 @@ One's "gender identity" is heavily influenced by one's physical sex, but is also
 I say this 
 
 Bar Heavy Science-ing (intense medical options such as surgery or hormone treatment), there's not much to be done about your birth sex. And since in today's world, most people assume that your sex is your gender, I present as female as to not have an unconventional gender identity become significant to my daily happenings.
-
